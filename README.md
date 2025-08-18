@@ -1,4 +1,4 @@
-👋 Hi, I’m @Japog
+👋 Hi, I’m @Jacob
 
 I live on fried chicken
 
